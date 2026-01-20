@@ -1,0 +1,1 @@
+# https-github.com-Arkiza-Alfarizki-parallel-programming-tasks-UAS
